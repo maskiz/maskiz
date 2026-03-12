@@ -1,1 +1,1 @@
--fish fiñgers
+-fish fingers
